@@ -22,7 +22,7 @@ I DON'T BELIEVE THAT "DNI"S REALLY WORK BUT HERE'S A LIST OF REASONS I WILL BLOC
 
 OTHERWISE FEEL FREE TO APPROACH ME FOR CASUAL ROLEPLAY OR TO CHAT OR WHATEVER. I'M FREQUENTLY OFF TAB SO IF I DON'T RESPOND THAT'S PROBABLY WHY.
 
-I DON'T REALLY USE MUCH OTHER SOCIAL MEDIA BUT HERE'S <a href="https://toyhou.se/lycannibal">MY TOYHOUSE</a> AND <a href="https://www.tumblr.com/lycannibal">MY TUMBLR</a>.
+I DON'T REALLY USE MUCH OTHER SOCIAL MEDIA BUT HERE'S <a href="https://toyhou.se/lycannibal">MY TOYHOUSE</a> AND <a href="https://www.tumblr.com/lycannibal">MY TUMBLR</a>, AS WELL AS <a href="https://open.spotify.com/user/199mu3gcv8wpligp55ql3nqfw?si=d248d451f4d3493d">MY SPOTIFY</a>.
 
 <b>GENERAL INTERESTS</b> --
 
